@@ -99,6 +99,10 @@ Btw PLEASE DO NOT GIT CLONE THIS, some times it can glitch windows.
 
 ![image](https://github.com/user-attachments/assets/a56cebcd-797e-4b7d-9ac1-95523dd3ee65)
 
+**UPDATE** OMFG ITS FINALLY DLEETING THE FILED
+
+![image](https://github.com/user-attachments/assets/e7a32dd1-efc8-4b6c-952d-950ad36087d1)
+
 ## Files
 
 Theres so many of them.
