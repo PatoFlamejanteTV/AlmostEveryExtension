@@ -107,6 +107,10 @@ Btw PLEASE DO NOT GIT CLONE THIS, some times it can glitch windows.
 
 ![image](https://github.com/user-attachments/assets/bc9c409b-dec6-471d-aa03-02e11866360e)
 
+***Le* UPDATE [[3]]** HALFWAY
+
+![image](https://github.com/user-attachments/assets/c8da271e-eccb-4463-9efe-8ccfa2ccc0f8)
+
 ## Files
 
 Theres so many of them.
