@@ -111,6 +111,10 @@ Btw PLEASE DO NOT GIT CLONE THIS, some times it can glitch windows.
 
 ![image](https://github.com/user-attachments/assets/c8da271e-eccb-4463-9efe-8ccfa2ccc0f8)
 
+**UPDATE *F O U R*** **99%!!!!**
+
+![image](https://github.com/user-attachments/assets/bfc7607f-9026-4e70-bf2c-f0ea368b7a48)
+
 ## Files
 
 Theres so many of them.
