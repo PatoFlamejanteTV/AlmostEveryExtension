@@ -103,6 +103,10 @@ Btw PLEASE DO NOT GIT CLONE THIS, some times it can glitch windows.
 
 ![image](https://github.com/user-attachments/assets/e7a32dd1-efc8-4b6c-952d-950ad36087d1)
 
+**UPDATE_2_** BRO 5 MINUTES??????
+
+![image](https://github.com/user-attachments/assets/bc9c409b-dec6-471d-aa03-02e11866360e)
+
 ## Files
 
 Theres so many of them.
