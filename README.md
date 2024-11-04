@@ -125,3 +125,9 @@ Theres so many of them.
 ### "100k< files" commit
 
 ![image](https://github.com/user-attachments/assets/d5b4f0bd-9f71-4d4b-9f18-e4c553aa7049)
+
+#### Semi-update
+
+OMFGGGGGGGGGGGGGGGGGGGGGGGGGGGG THATS EVEN GLITCHING
+
+![image](https://github.com/user-attachments/assets/ca3c7a7d-3096-4393-a4a7-6d7e829e263e)
